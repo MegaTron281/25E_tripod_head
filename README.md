@@ -31,7 +31,8 @@
 
 ## 相关链接
 
-- **拓竹Maker World社区模型链接**: [https://makerworld.com.cn/zh/models/2452910-25nian-dian-sai-eti-er-wei-bu-jin-dian-ji-yun-tai#profileId-2798121](https://makerworld.com.cn/zh/models/2452910-25nian-dian-sai-eti-er-wei-bu-jin-dian-ji-yun-tai#profileId-2798121)
-- **Bilibili视频**: 
+- **拓竹Maker World社区3D模型链接**: [https://makerworld.com.cn/zh/models/2452910-25nian-dian-sai-eti-er-wei-bu-jin-dian-ji-yun-tai#profileId-2798121](https://makerworld.com.cn/zh/models/2452910-25nian-dian-sai-eti-er-wei-bu-jin-dian-ji-yun-tai#profileId-2798121)
+- **Bilibili视频**:
+https://www.bilibili.com/video/BV1h9R7BrEh2?vd_source=2f64b1ab4cff35b1d681756a7714ff49
 
 如果有小伙伴需要整套成品，可以去我的闲鱼主页看看，闲鱼搜索“Tron不可贴”
